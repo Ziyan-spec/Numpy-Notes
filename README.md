@@ -14,7 +14,7 @@
 
 ## 🔗 Connect With Me
 
-- GitHub: [github.com/Ziyan](https://github.com/Ziyan)
+- LinkedIn: [https://www.linkedin.com/in/mohd-ziyan-686b93312/]
 
 ---
 
