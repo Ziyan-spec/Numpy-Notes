@@ -14,7 +14,7 @@
 
 ## 🔗 Connect With Me
 
-- LinkedIn: [https://www.linkedin.com/in/mohd-ziyan-686b93312/]
+- LinkedIn: https://www.linkedin.com/in/mohd-ziyan-686b93312/
 
 ---
 
